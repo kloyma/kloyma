@@ -30,7 +30,6 @@
 <p align="right"> 𝑑𝑛𝑖: 𝑟𝑎𝑐𝑖𝑠𝑡, ℎ𝑜𝑚𝑜𝑝ℎ𝑜𝑏𝑖𝑐, 𝑠𝑒𝑥𝑖𝑠𝑡, 𝑙𝑖𝑡ℎ𝑟𝑜𝑚𝑎𝑛𝑡𝑖𝑐 </p>
 <br>
 <img src="https://www.image2url.com/r2/default/files/1777831801296-c0e8894e-46f4-44da-80f2-a1226ed7d614.png" width="470" align="right" style="margin-right: 20;"/>
-<br>
 <p align="left"> 𝑖𝑚 𝑜𝑓𝑡𝑒𝑛 𝑎𝑓𝑘/𝑜𝑓𝑓𝑡𝑎𝑏 𝑠𝑜 𝑤𝟸𝑖 𝑝𝑙𝑧 </p>
 <br>
 <p align="left"> 𝑑𝑜𝑛'𝑡 𝑡𝑟𝑦 𝑡𝑜 𝑔𝑒𝑡 𝑡𝑜 𝑘𝑛𝑜𝑤 𝑚𝑒 𝑖𝑓 𝑢 𝑗𝑢𝑠𝑡 𝑤𝑎𝑛𝑡 𝑡𝑜 𝑐ℎ𝑎𝑡 𝑓𝑜𝑟 𝑎 𝑐𝑜𝑢𝑝𝑙𝑒 𝑜𝑓 𝑑𝑎𝑦𝑠 </p>
