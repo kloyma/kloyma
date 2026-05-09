@@ -23,7 +23,7 @@
 <h3 align="center"> 𝑨 𝒍𝒊𝒕𝒕𝒍𝒆 𝒂𝒃𝒕 𝒎𝒆: </h3>
 <br>
 <img src="https://www.image2url.com/r2/default/files/1777828187060-fa247795-3595-41c1-85a2-46f21873e2a6.png" width="470" align="left" style="margin-right: 20;"/>
-<p align="right"> 𝑁𝑖𝑐𝑘𝑒𝑙 𝑜𝑟 𝐾𝑙𝑜𝑦𝑚𝑎 :: ℎ𝑒/𝑠ℎ𝑒, 𝑒𝑛𝑡𝑝 𝟽𝑤𝟾, 𝟷𝟽𝑦.𝑜, 𝑒𝑛𝑔/𝑟𝑢/𝑢𝑎, 𝑢𝑡𝑐+𝟻 </p>
+<p align="right"> 𝑁𝑖𝑐𝑘𝑒𝑙 𝑜𝑟 𝐾𝑙𝑜𝑦𝑚𝑎 :: ℎ𝑒/𝑠ℎ𝑒, 𝑒𝑛𝑡𝑝 𝑠𝑜𝟽, 𝟷𝟽𝑦.𝑜, 𝑒𝑛𝑔/𝑟𝑢/𝑢𝑎, 𝑢𝑡𝑐+𝟻 </p>
 <br>
 <p align="right"> 𝑚𝑎𝑖𝑛 𝑓𝑑: 𝑏𝑠𝑑, ℎ𝑒𝑙𝑙𝑣𝑒𝑟𝑠𝑒, 𝑚𝑎𝑟𝑣𝑒𝑙, 𝑙𝑜𝑙𝑜𝑣𝑒𝑟𝑠𝑒, ℎ𝑒𝑙𝑙𝑜 𝑐ℎ𝑎𝑟𝑙𝑜𝑡𝑡𝑒, 𝑚𝑡𝑝 </p>
 <br>
