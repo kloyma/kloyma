@@ -3,7 +3,7 @@
   </p>
   
 <p align="center">
-  <a href="https://open.spotify.com/playlist/1mYUwEtzD0n1OxP1ro2JLi?si=4ad53c513b7f40b2" target="_blank">
+  <a href="https://open.spotify.com/playlist/0OaoNqeMXA7NjkOIIsHYhi?si=1917670fc29d41d7" target="_blank">
     <img src="https://img.shields.io/badge/-c6442a?style=style=for-the-badge&logo=spotify&logoColor=white" width=55 >
     </a>
   <a href="https://discordapp.com/users/kloyma" target="_blank">
