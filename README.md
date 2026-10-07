@@ -19,21 +19,3 @@
     <img src="https://img.shields.io/badge/-000000?style=style=for-the-badge&logo=roblox&logoColor=white" width=55 >
     </p>
     <hr>
-
-<h3 align="center"> 𝑨 𝒍𝒊𝒕𝒕𝒍𝒆 𝒂𝒃𝒕 𝒎𝒆: </h3>
-<br>
-<img src="https://imgfy.ru/ib/kqTr31fyChaROxp_1789561394.webp" width="470" align="left" style="margin-right: 20;"/>
-<p align="right"> 𝑁𝑖𝑐𝑘𝑒𝑙 𝑜𝑟 𝐾𝑙𝑜𝑦𝑚𝑎 :: ℎ𝑒/𝑠ℎ𝑒, 𝑒𝑛𝑡𝑝 𝑠𝑜𝟽, 𝟷𝟽𝑦.𝑜, 𝑒𝑛𝑔/𝑟𝑢/𝑢𝑎, 𝑢𝑡𝑐+𝟻 </p>
-<br>
-<p align="right"> 𝑚𝑎𝑖𝑛 𝑓𝑑: 𝑏𝑠𝑑, ℎ𝑒𝑙𝑙𝑣𝑒𝑟𝑠𝑒, 𝑚𝑎𝑟𝑣𝑒𝑙, 𝑙𝑜𝑙𝑜𝑣𝑒𝑟𝑠𝑒, ℎ𝑒𝑙𝑙𝑜 𝑐ℎ𝑎𝑟𝑙𝑜𝑡𝑡𝑒, 𝑚𝑡𝑝 </p>
-<br>
-<p align="right"> 𝑑𝑛𝑖: 𝑟𝑎𝑐𝑖𝑠𝑡, ℎ𝑜𝑚𝑜𝑝ℎ𝑜𝑏𝑖𝑐, 𝑠𝑒𝑥𝑖𝑠𝑡, 𝑙𝑖𝑡ℎ𝑟𝑜𝑚𝑎𝑛𝑡𝑖𝑐 </p>
-<br>
-<img src="https://imgfy.ru/ib/z6PpaPkjAa35IwQ_1789561499.webp" width="470" align="right" style="margin-right: 20;"/>
-<p align="left"> 𝑖𝑚 𝑜𝑓𝑡𝑒𝑛 𝑎𝑓𝑘/𝑜𝑓𝑓𝑡𝑎𝑏 𝑠𝑜 𝑤𝟸𝑖 𝑝𝑙𝑧 </p>
-<br>
-<p align="left"> 𝑑𝑜𝑛'𝑡 𝑡𝑟𝑦 𝑡𝑜 𝑔𝑒𝑡 𝑡𝑜 𝑘𝑛𝑜𝑤 𝑚𝑒 𝑖𝑓 𝑢 𝑗𝑢𝑠𝑡 𝑤𝑎𝑛𝑡 𝑡𝑜 𝑐ℎ𝑎𝑡 𝑓𝑜𝑟 𝑎 𝑐𝑜𝑢𝑝𝑙𝑒 𝑜𝑓 𝑑𝑎𝑦𝑠 </p>
-<br>
-<p align="left"> 𝑢 𝑐𝑎𝑛 𝑓𝑖𝑛𝑑 𝑚𝑒 𝑜𝑛 𝑠𝑎𝑓𝑒𝟷 𝑠𝑒𝑟𝑣𝑒𝑟 𝑏𝑠𝑑/𝑙𝑜𝑓𝑑 𝑎𝑟𝑒𝑎, 𝑐+ℎ 𝑖𝑠 𝑤𝑒𝑙𝑐𝑜𝑚𝑒 </p>
-<br>
-    <hr>
